@@ -4,7 +4,7 @@
 
 ### Proje Gorseli
 
-! [ekranalintisi] (https://imgyukle.com/i/JkbAoH)
+! [ekranalintisi](https://imgyukle.com/i/JkbAoH)
 
 
 
